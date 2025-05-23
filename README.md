@@ -28,7 +28,7 @@ As vantagens não param por aí. Pelo contrário, ao usar seu Cartão Mercado Pa
 Outras vantagens que você terá acesso são:
 
 1. **Pagar e parcelar compras com a Linha de Crédito Mercado Pago**
-Conte com condições vantajosas ao comprar milhões de produtos no Mercado Livre. Com a Linha de Crédito Mercado Pago, você pode parcelar suas compras mesmo se não tiver um cartão de crédito. E o melhor, em até 12 vezes. Para isso, basta fazer a compra, confirmar o endereço de entrega e selecionar a opção "Linha de Crédito Mercado Pago" como forma de pagamento. Depois, você escolhe a quantidade de parcelas e vai pagando os boletos mensalmente, sem estresse ou burocracia.
+Conte com condições vantajosas ao comprar milhões de produtos no Mercado Livre. Com a Linha de Crédito Mercado Pago, você pode parcelar suas compras mesmo se não tiver um [cartão de crédito](https://meubolso.mercadopago.com.br/cartao-de-credito-mercado-pago-5-perguntas-e-respostas). E o melhor, em até 12 vezes. Para isso, basta fazer a compra, confirmar o endereço de entrega e selecionar a opção "Linha de Crédito Mercado Pago" como forma de pagamento. Depois, você escolhe a quantidade de parcelas e vai pagando os boletos mensalmente, sem estresse ou burocracia.
 
 2. **Participar do programa de pontos e ganhar vantagens**
 Você sabia que todos os usuários do Mercado Livre e do Mercado Pago podem participar automaticamente do programa de recompensas Meli+? Por meio dele, você pode explorar diversos benefícios sem custo, como fretes gratuitos, envios rápidos, descontos exclusivos e ainda condições vantajosas para assinaturas de serviços digitais (Disney+, Star+ Deezer,  HBO Max e outros) e muito mais!
